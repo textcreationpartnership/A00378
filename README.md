@@ -36,11 +36,87 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-An exhortation to the diligent studye of scripture, made by Erasmus Roterodamus. And tra[n]slated in
+
 #####Body#####
+LActantius Firmianus / Christen Reader (whose eloquēce sanct Hierome doth greatlie avaunce) endeverTHe cause why the apostle did write this presente chapter was this. The Corinthiās whiche dyd recea
+    _ It is good for a man not tō touche a woman. Neverthelesse to avoyde fornicacyon. Let every mā have his wife. And let every woman have her husbande.
+
+    _ Let the man geve vnto the wife due benevolence / lykewise also the wyfe vnto the man. The wyfe hath not power over her awne body: but the husbande. And lyke wise the mā hath not power over his awne body / but the wyfe.
+
+    _ With drawe not your selves one from an other / excepte it be by cōsente for a time / for to geve your selves vnto fastinge and prayer / 
+
+
+
+and afterwarde come a gayne vnto the same thinge / leste Sathan tempte yow for your incontinēcy
+
+    _ This I saye of favour / not of cōmaundemēte / for I wolde that all mē were as I my silfe am. But every man hath his proper gifte of god / one after this maner / an other after that.
+
+    _ I saye vnto the vnmaried men ād wyddowes / it is good for thē yf they do abyde / even as I do.
+
+    _ I saye vnto the vnmaryed mē / ād widdowes: It is good for thē yf they abyde even as I do: But and yf they can not abstayne / let them mary. For it is better to marye / then to burne.
+¶ The seconde parte. Unto the maryed commaunde no• I / but the lorde. That the wife separate not hyr
+    _ ¶ The seconde parte. Unto the maryed commaunde no• I / but the lorde. That the wife separate not hyr silfe fro the mā If she separate hir silfe / let hir remaine vnmaryed / or be reconciled vnto hir husbande agayne. And let not the husbande put a waye his wife.
+
+    _ To the remnaunte speake I ād not the lorde. If eny brother have a wife that beleveth not. If she be cōtente to dwelle with him / let him not put hyr a waye. And the womā which hath vnto hyr husbande and infidele / yf he consente to dwelle with hir let hir not put hem a waye.
+
+    _ ¶ The Apostle procedeth forthe. For the vnbelevinge husbande is sanctified by the wyfe: And the vnbelevinge wife is sanctified by the husbande. Or elles were your chyldre vnclene: but now ar they pure.
+
+    _ But ād yf the vnbelevinge departe / let him departe. A brother or a sister is not in subiection to soche. God hath called vs in peace.
+
+    _ For howe knowest thou o wōman whether thou shalte save thy husbāde or not? Other howe knoweste thou o man whether thou shalte save thy wyfe or not? But even as god hath distributed vnto every man.
+
+    _ As the lorde hath called every parsone / so let him walke. And so ordeyne I in all congregacyons.
+
+    _ If any mā be called beyng circūcised / let him not take vncircumcision. If any be called beyng vncircumcised / let him not be circumcised. Circumcisiō is no thinge / vncirdumcisiō is no thinge: but the kepinge of the cōmaundemētes of god is all to gether.
+
+    _ Let every man abyde in the same state wherin he wascalled Art thou called beyng a servante? Care not for yt. Neverthelesse yf thou mayste be free / vse yt rather.
+
+    _ Neverthelesse yf thou mayest be free sayth Paule) vse yt rather
+
+    _ For he that ys called in the lorde beyng a servāte ys the lordes fre mā. Lyke wyse he that ys called beyng free / ys Chrystes servante.
+
+    _ ye are dearly bough•••ee therfore ye be not the servātes of men.
+¶The thirde parte which entreateth of vyrginite. As concerninge vyrgins I have no cammaundemēte of 
+    _ ¶The thirde parte which entreateth of vyrginite. As concerninge vyrgins I have no cammaundemēte of the lorde / yet I do geve councelle as one that hath obteyned of the lorde to be faithfulle. I suppose that it is good for the presente necessyte / for it is good for a man so to be.
+
+    _ Art thou bounde vnto a wyfe? seke not to be loosed. Art thou loosed from a wyfe? seke not a wyfe: But ād yf thou take a wyfe / thou haste not sinned / like wise yf a virgine marye / she hath not synned: Neverthelesse soche shall have troble in theyr flesshe: but I faver yow.
+
+    _ Bretherne let every man wherin he is called / therī abyde with God.
+
+    _ This saye I bretherne the tyme ys shorte / yt remayneth that they whiche have wifes be as though they had none: and that they that wepe be as though they wept not: and that they that reioyce be as though they reioysed not: And that bye / as though they possessed not: And they that vse this worlde / as though they vsed yt not / for the fassion of this worlde goth away.
+
+    _ I wolde have you with out care. The single mā careth for thinges of the lorde / how he maye please the lorde: but he that hath maried careth for thīges of the worlde / howe he maye please his wife
+
+
+
+There is difference betwene a virgyn ād a wife. The single womā careth for the thinges of the lorde that she may be pure both in body and also in sprete: but she that ys maried careth for thinges of the worlde / howe she maye please hir husbande.
+
+    _ This speake I for your profite and not to tangle yow in a snare: but for that which is honeste and comly vnto you. And that you maye quietly cleave vnto God with out distraction or separacion.
+
+    _ yf enyman thynke that yt ys vncomly for his virgyne yf she passe the tyme of mariage / and yf so nede requyre / let hym do what he listeth: let them be coupled in matrimony.
+
+    _ Neverthelesse he that purposeth surely in his harte havinge no nede / but hath power over his awne wyll: ād hath so decreed in his herte / that he wyll kepe hys vyrgen / doth well.
+
+    _ So then he that ioyneth hys vyrgen in mariage / doth well And he that ioyneth not hys virgen in mariage / doth better.
+
+    _ The wyfe ys bounde vnto the lawe
+
+
+
+so longe as her husbande lyveth. yf her husbande slepe she ys at liber•ye to mary with whome she wyll / only in the lorde but she ys happyar yf she so abyde in my indgemente. And I thinke verely that I have the sprete of god.
 
 #####Back#####
+¶Paule to the Hebrues .xiij.¶Let wedlocke be had in price in all poyntes / and let the chāber be vn
+    _ ¶Paule to the Hebrues .xiij.
 
+    _ Paule .i. Corin. vi.
+
+    _ Paule .i. Corinthiorū .vii.
+
+    _ Christ Mathei. xix.
+
+    _ Paule To the Ephesians .v.
+Leffe.ij.syde.j.line.xij.presumptio• / read presumption.Leff.ij.sy.i.li.xxvij.en / read inLeff.vi.sy¶ At Malborow in the londe of Hesse. M.D.xxix.xx daye Iunij. By my Han• Luft.
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
